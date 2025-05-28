@@ -1,4 +1,4 @@
-# ChatGPT代充教程：国内如何充值ChatGPT PLUS会员？
+# ChatGPT代充教程：国内如何充值ChatGPT PLUS会员？ 
 
 > **🎯 核心目的：解决国内用户升级 ChatGPT Plus 的难题**
 
